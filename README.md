@@ -1,2 +1,0 @@
-# racheldelacruz.github.io
-iprofile
